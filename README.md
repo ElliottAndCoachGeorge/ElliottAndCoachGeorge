@@ -1,4 +1,4 @@
-## Hi there 👋: Im not gay
+## Hi there 👋: 
 Im **✨ special ✨**
 
 <!--
