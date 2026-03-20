@@ -1,4 +1,5 @@
-## Hi there 👋
+## Hi there 👋: Im not gay
+Im **✨ special ✨**
 
 <!--
 **ElliottAndCoachGeorge/ElliottAndCoachGeorge** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
