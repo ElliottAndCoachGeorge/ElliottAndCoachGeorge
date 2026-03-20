@@ -7,7 +7,7 @@ Im **✨ special ✨**
 - 🤔 I’m looking for help with being smart
 - 💬 Ask me about how im not smart
 - 📫 How to reach me: edshaver@thewildcats.net
-- 😄 Pronouns: Roman Catholic Church/The Czech Republican Government
+- 😄 Pronouns: Catholic Church/The Czech Republican Government
 - ⚡ Fun fact: I eat sheet metal on a daily basis (it looks so tasty)
 -->
 
